@@ -6,3 +6,4 @@ Mei Chen : communication
 Julien Lambert : trésorier
 Lucas Tylczak : nouveau bénévole, siteweb
 Inès Moreau : accueil du samedi 
+Alann Vidal : polyvalent
